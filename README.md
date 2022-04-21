@@ -4,7 +4,24 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-<!---
-ASiF-KH4N-420-320/ASiF-KH4N-420-320 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+ASiF-KH4N-420-320/ASiF-KH4N-420-320
+
+
+𝐓𝐇𝐀𝐍𝐊𝐒 𝐁𝐑𝐎 𝐅𝐎𝐋𝐋𝐎𝐖 𝐌𝐘  𝐆𝐈𝐓𝐇𝐔𝐁 
+⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️
+
+▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓
+➥ ⃟🎭𝐓𝐇𝐀𝐍𝐊𝐒.𝐁𝐑𝐎.𝐅𝐎𝐋𝐋𝐎𝐖.𝐌𝐄
+▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓
+☢️☢️☢️☢️☢️☢️☢️☢️☢️☢️☢️☢️☢️☢️☢️
+
+
+
+
+
+
+
+
+
+        😘😘😘
+{«𝐀𝐒𝐈𝐅____________𝐊𝐇4𝐍»}
