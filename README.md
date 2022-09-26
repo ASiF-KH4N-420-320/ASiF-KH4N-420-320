@@ -18,6 +18,11 @@
 ▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓
 
 
+![106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594](https://user-images.githubusercontent.com/104133480/192360561-9d86ea31-c36f-4ba0-a8df-3fafe67464eb.gif)
+😈😈😈
+💉💉💉
+😈😈😈
+![md7Oqrf](https://user-images.githubusercontent.com/104133480/192360756-2582d710-348b-4230-b4de-86ab175974c0.gif)
 
 
 
@@ -37,7 +42,6 @@
 
 
 
-![106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594](https://user-images.githubusercontent.com/104133480/192357774-ccf61597-9b83-44bd-8f6b-fe317d6b0ecb.gif)
 
 
 
@@ -71,41 +75,5 @@
 
 
 
-![68747470733a2f2f63646e2e6472696262626c652e636f6d2f75736572732f313035393538332f73637265656e73686f74732f343137313336372f6d656469612f33346536396562363161376264386465613163393537613862383236303561372e676966](https://user-images.githubusercontent.com/104133480/192358980-e0fadb80-9682-49cd-844a-55ce5b679b44.gif)
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-   ![Developer](https://user-images.githubusercontent.com/104133480/192359170-8688f373-189b-46b1-8c54-daccaea5e54c.gif)
-
+   
