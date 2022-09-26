@@ -78,7 +78,8 @@
 🤖
 
 
-![starbadge](https://user-images.githubusercontent.com/104133480/192365152-1f344bf3-4be5-4e8e-aa10-7018840b4f07.gif)
+![starbadge](https://user-images.githubusercontent.com/104133480/192365152-1f344bf3-4be5-4e8e-aa10-7018840b4f07.gif)![pro](https://user-images.githubusercontent.com/104133480/192365355-6bdb6903-ca05-4c8c-be0d-7882a10f3971.gif)
+
 
 
 
