@@ -70,6 +70,7 @@
 
 
 
+![Developer](https://user-images.githubusercontent.com/104133480/192369608-ce3f3ecb-4078-4ac9-a848-096370717609.gif)
 
 
 
