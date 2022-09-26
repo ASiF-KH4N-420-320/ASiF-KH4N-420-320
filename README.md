@@ -79,5 +79,5 @@
 
 
 
-![Developer](https://user-images.githubusercontent.com/104133480/192359170-8688f373-189b-46b1-8c54-daccaea5e54c.gif)
+   ![Developer](https://user-images.githubusercontent.com/104133480/192359170-8688f373-189b-46b1-8c54-daccaea5e54c.gif)
 
